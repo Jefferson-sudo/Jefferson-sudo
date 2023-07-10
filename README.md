@@ -1,6 +1,5 @@
 ### Olá! Meu nome é Jefferson🤚
 
-Sou formado em ADS e atualmete faço pos em Engenharia de Software 
 
 <br>
 
